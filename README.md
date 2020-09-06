@@ -14,8 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-🌹哈喽你好吗
-🌹衷心感谢
-🌹珍重再见
-🌹期待再相逢
+- 🌹哈喽你好吗
+- 🌹衷心感谢
+- 🌹珍重再见
+- 🌹期待再相逢
 
