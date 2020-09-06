@@ -1,4 +1,4 @@
-### Hi there 👋
+### 🌹 哈喽你好吗 衷心感谢 珍重再见 期待再相逢 👋
 
 <!--
 **FBABFBA/FBABFBA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,8 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 🌹哈喽你好吗
-- 🌹衷心感谢
-- 🌹珍重再见
-- 🌹期待再相逢
-
+- 这里是FaceBookAround！也可以叫我FBA或者脸书圆！（xs
+- 
+- 福州大学2018级计算机系学生！
+- 喜欢动漫🌈游戏🎮步行🚶‍和乒乓球🏓，最喜欢抹茶冰淇淋🍦和四季春珍珠奶茶🌹！
+- 邮箱是1183733168@qq.com
+- 标题是《我们这一家》台配版的片头曲！如果你正好看过就说明我们有缘分哦！
